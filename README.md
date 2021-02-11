@@ -14,7 +14,7 @@
 ### [](#Contact "Contact")🕑Contact
 网络上见到的 `LiongZHANG` 或者 `LilongZHANG` 的 ID 大部分应该是我，如果重名我会加一个 `-` 在中间。
 -   WeChat🍳：[Liong-ZHANG](https://pic.downk.cc/item/5e28570b2fb38b8c3c10a62a.png) (👈点击显示二维码)
--   Email📧：[liong@email.liong.icu](mailto:liong@email.liong.icu)
+-   Email📧：[liong@sdust.edu.cn](mailto:liong@sdust.edu.cn)
 -   GitHub📃: [LiongZHANG](https://github.com/liongzhang)（菜鸡乱开坑）
 -   哔哩哔哩📺: [LiongZHANG](https://space.bilibili.com/171945798)（许久前做过几个视频，但太凄惨没有动力继续下去，主要用来看番剧）
 -   微博📝：[LiongZHANG](https://weibo.com/liongzhang)（辣鸡微博，总自动乱关注，但愿早日被替代。自己搞了个黄V，想要的可以一起来找我玩呀）
